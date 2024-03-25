@@ -2,7 +2,7 @@
 
   
 
-- 📫 How to reach me : scream
+- 📫 How to reach me : scream, if you cant scream again (but louder bruh)
 
 - ⚡ Fun fact: the mitochondria is the powerhouse of the cell
 
